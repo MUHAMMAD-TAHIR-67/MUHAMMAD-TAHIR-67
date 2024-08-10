@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me tahirnaeem036@gmail.com
 - 😄 Pronouns: ...
-- ⚡ Fun fact: i don't like coding
+- ⚡ Fun fact:intuitive learner
